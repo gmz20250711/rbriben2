@@ -22,4 +22,4 @@
 
 当你学会辨识这些特点之后，便能更加高效找到真正好用的日本AV资源站。不要再为广告困扰、画质模糊烦恼，从现在开始享受纯净、流畅、高质量的观影体验吧。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/gmz20250711/rbriben2 )</span>
